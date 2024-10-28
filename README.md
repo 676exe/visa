@@ -1,0 +1,1 @@
+guncellenmemis hali
